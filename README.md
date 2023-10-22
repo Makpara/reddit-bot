@@ -1,3 +1,8 @@
 # Reddit autopost for up-for-grabs > /r/RepositoryRequest
 
 https://www.reddit.com/r/RepositoryRequest
+makparallax999_api1.gmail.com
+H7QFL92R9K7CWTQJH7QFL92R9K7CWTQJ
+Ai1PaghZh5FmBLCDCTQpwG8jB264AidJCFyEPEnUUN1wy-uVi6IQkyFnAi1PaghZh5FmBLCDCTQpwG8jB264AidJCFyEPEnUUN1wy-uVi6IQkyFnmakparallax999_api1.gmail.com
+H7QFL92R9K7CWTQJH7QFL92R9K7CWTQJ
+Ai1PaghZh5FmBLCDCTQpwG8jB264AidJCFyEPEnUUN1wy-uVi6IQkyFnAi1PaghZh5FmBLCDCTQpwG8jB264AidJCFyEPEnUUN1wy-uVi6IQkyFn
